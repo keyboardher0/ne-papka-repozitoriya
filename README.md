@@ -1,1 +1,2 @@
 # ne-papka-repozitoriya
+<img src="http://s.zefirka.net/images/2016-04-26/ocharovatelnye-kosoglazye-koty-kotoryx-lyubyat-ne-za-vneshnost/ocharovatelnye-kosoglazye-koty-kotoryx-lyubyat-ne-za-vneshnost-2.jpg"/>
